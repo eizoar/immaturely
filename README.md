@@ -1,6 +1,6 @@
 placeholder yay
 
-raozie / eizoar / somni or my fav character names ,, 
+raozie / eizoar / somni or my fav character names PLEASEEE USE NICKNAMESSSS ,, 
 panromantic aroace ,, 
 neurodivergent ,,
 genderfluid bozo
@@ -11,4 +11,4 @@ pls respect my boundaries!!! im.mostly seen as my irl skin, diego armando cospla
 
 SOCIAL MEDIAS ARE ALL @EIZOAR!!!! my. pinterest is. glistetsky! my roblox is @HelpMePonyGirl , alt is @Raoziee!!
 
-[straw](https://eizoar.straw.page) [rentries](https://rentry.org/raorao) [atabook](https://eizoar.atabook.org) [carrd](https://eizoar.carrd.co) [prns.cc](https://prns.cc/@eizoar) [pronounspage](https://en.pronouns.page@eizoar) [bundlrs.cc](https://bundlrs.cc/raozie)
+[straw](https://eizoar.straw.page) [rentries](https://rentry.org/raorao) [atabook](https://eizoar.atabook.org) [carrd](https://eizoar.carrd.co) [prns.cc](https://prns.cc/@eizoar) [pronounspage](https://en.pronouns.page/@eizoar)
